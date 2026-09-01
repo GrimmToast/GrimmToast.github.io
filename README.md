@@ -1,4 +1,4 @@
-# GrimmToast.github.io 
+# **HIST/HSTM/LIS/WGS 4073-995/50733-995: Assignments** 
 # **Current Favorite Cultural Heritage Site:**
 ## **Whitby Abbey**
   [The ruins of Whitby Abbey](https://www.english-heritage.org.uk/visit/places/whitby-abbey/history-and-stories/) sit above the town of Whitby in North Yorkshire, England. Whitby Abbey is famous for its role in Early English Christianity and for its use as a setting in Bram Stoker's _Dracula_ for the arrival of the titular vampire in England.<sup>1</sup> The abbey was sacked in 1539 as a part of Henry VIII's suppression of the monasteries in England, Wales, and Ireland following Parliament's passing of the Act of Supremacy in 1534 making him Supreme Head of the Church of England.<sup>2</sup>
